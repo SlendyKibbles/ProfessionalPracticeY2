@@ -1,2 +1,2 @@
 Professional Practice for University of Lincoln 
-2019M
+CGP2019M
